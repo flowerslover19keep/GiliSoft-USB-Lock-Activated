@@ -1,0 +1,1 @@
+# GiliSoft-USB-Lock-Activated
